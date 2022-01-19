@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @N4KKO.
+- 👀 I’m interested in Games and sleeping...
+- 🌱 I’m currently learning: Game and softwer development.
+- 💞️ I’m looking to collaborate on: Nothing.
+- 📫 How to reach me: You don't.
